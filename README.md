@@ -1,16 +1,3 @@
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
-# study_partner
 # student_partner1
 # student_partner1
 # student_partner1
